@@ -7,6 +7,6 @@
 
 "Right now we get rid of people through a sewer tunnel that we just built at Fort Lawton. Cory keeps poking around but it is not stopping anyone but the submarine commanders. I raped so many people with the submarine commanders that I don't even care about this whole thing. Just shoot me or put me somewhere. Who are you again?" - Katherine Chevon
 
-"25th infantry" -Bernie Sweat Hollgram
+"25th infantry" -Bernie Sweat Hollgram 16:50 02-14-20
 
 
