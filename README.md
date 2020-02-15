@@ -1,0 +1,2 @@
+# DCMN-Hofstad-Notes---Katherine-Chevon-Testimony
+"Aaron has been stealing valuables, houses, and identities since he was a teenager. I stuck with him because I thought one day we would hit big. When he stole the Secret Service ID everything changed. I thought I would be on a boat right now, but all Mike does is hang out with Brian and kill children. He says he is being forced by a Chinese submarine commander but I know for sure it is Brian Hofstad." - Katherine Chevon
